@@ -1,0 +1,7 @@
+NAMA: Rizka Indah Permata
+
+NIM: 607062330043
+
+JURNAL: 03
+
+KELAS: D3IF 47-04
